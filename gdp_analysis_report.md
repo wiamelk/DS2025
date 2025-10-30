@@ -1,4 +1,6 @@
 # Rapport d'Analyse Approfondie du PIB des Principales Économies Mondiales
+A WIAM EL KHOUDRI
+![Uploading WhatsApp Image 2025-10-30 à 12.17.57_18034d6e.jpg…]()
 
 ---
 
